@@ -2,11 +2,10 @@
 
 I am from Turkey 🇹🇷 but I go to a German 🇩🇪 highschool. I currently live in Istanbul.
 
-### I♥
-Languages (conlangs included!)
+### I love ♥
+- Languages (conlangs included!)
+- Technology
+- Learning
+- Thinking
 
-Technology
-
-Learning
-
-Thinking
+[Shoot me an email](mailto:alpkaanaksu) if you want to get to know me better. I'd be happy to talk.
