@@ -7,5 +7,3 @@ I am from Turkey 🇹🇷 but I go to a German 🇩🇪 high school. I currently
 - Technology
 - Learning
 - Thinking
-
-[Shoot me an email](mailto:alpkaanaksu) if you want to get to know me better. I'd be happy to talk.
