@@ -1,1 +1,1 @@
-# Hey 👋🏻 I'm Alp Kaan!
+# 👋🏻 Hey, I'm Alp!
